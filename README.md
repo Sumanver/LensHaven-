@@ -1,1 +1,1 @@
-# LensHaven-
+# LensHaven-LensHaven is a dynamic platform designed to unite photography enthusiasts, professional photographers, and clients seeking creative solutions. It serves as a one-stop destination for all photography and videography needs, fostering collaboration, skill enhancement, and easy access to resources.
